@@ -12,7 +12,7 @@
 
  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀  $\color{#F9FFCC}{\textsf{❝ そう、我が最大の願いは、我が最大の業となってしまったのだ…… ❞}}$
 
- ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀   ⠀    ⠀   ⠀   ⠀ [<img width="150" height="150" alt="Untitled1_20260129174440" src="https://github.com/user-attachments/assets/4605c440-6eaf-4c12-bd1e-2ebc1c19e243" />](https://artificialvampire.atabook.org/)
+ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀  ⠀  ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀   ⠀[<img width="150" height="150" alt="Untitled1_20260129174440" src="https://github.com/user-attachments/assets/4605c440-6eaf-4c12-bd1e-2ebc1c19e243" />](https://artificialvampire.atabook.org/)
  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀
  
  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀ ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀   ⠀ $\color{#F9FFCC}{\textsf{Sign my ATA, どうも }}$
